@@ -1,3 +1,3 @@
-# viernes-6-de-diciembre
+# hoy es viernes animo!
 
 Hola, todavia falta semana 18 pero animo!
